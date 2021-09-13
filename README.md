@@ -1,0 +1,1 @@
+# yakuminegi.github.io
